@@ -1,4 +1,4 @@
-# Northwest Registered Agent Discount & Coupon Code (2025)
+# Northwest Registered Agent Discount & Coupon Code (2026)
 
 Looking for a [legit Northwest Registered Agent discount](https://shrsl.com/4ww4t) — without getting scammed by fake coupon codes?
 
